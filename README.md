@@ -1,0 +1,1 @@
+# panoshow.cz
